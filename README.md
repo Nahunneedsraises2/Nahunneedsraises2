@@ -1,7 +1,5 @@
-## mini stuff about me!  https://github.com/Nahunneedsraises2/Nahunneedsraises2/issues/2
-<!--hello my name is yui!
+## mini stuff about me!  hello my name is yui!
 i am still a minor and will NOT reveal my age until i fully get comfortable with the person i'm chatting with...
 https://private-user-images.githubusercontent.com/192991492/531477032-ff153872-b85b-4dd0-9cab-8d54d77be319.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3Njc2NDI0MzQsIm5iZiI6MTc2NzY0MjEzNCwicGF0aCI6Ii8xOTI5OTE0OTIvNTMxNDc3MDMyLWZmMTUzODcyLWI4NWItNGRkMC05Y2FiLThkNTRkNzdiZTMxOS5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwMTA1JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDEwNVQxOTQyMTRaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT0wNmI4Mjk1NTM2NGRiY2ZlMmUxYzVmN2EyMTAzOWM5NzFjNWZlNGVlMTU3NGM2MjgzZjRjYWU5ZTk0ZDUzNzdkJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.GByX6jtJoaHx9Jp9tDrxiVtV5-blSqee1EiR_FcuP4E
-i am sometimes really shy but you can still try to chat with me!!
 plus my pronouns are she/they so please don't call me by masculine pronouns!
 
