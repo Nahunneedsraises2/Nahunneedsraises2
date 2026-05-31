@@ -1,10 +1,10 @@
-## mini stuff about me!  hello my name is yui!
-i am still a minor and will NOT reveal my age until i fully get comfortable with the person i'm chatting with...
-<img width="733" height="635" alt="image" src="https://github.com/user-attachments/assets/37358fb2-d7f6-4242-8223-cbdb0763e379" />
-plus my pronouns are she/they so please don't call me by masculine pronouns!
+## ℌ𝔢𝔶,𝔑𝔞𝔪𝔢'𝔰 𝔜𝔲𝔦!
+ɪ ᴀᴍ ᴀ ᴍɪɴᴏʀ
 
-i really love the character on my github and profile picture! 
+ᴘʀᴏɴᴏᴜɴꜱ: ꜱʜᴇ/ᴛʜᴇʏ
 
-<img width="296" height="260" alt="neyaw" src="https://github.com/user-attachments/assets/ffda221b-aef3-4ce2-96e2-c285706f1b85" />
+<img width="736" height="475" alt="Untitled15_20260531165616" src="https://github.com/user-attachments/assets/d3a3c7e0-d2d0-4fbc-bc90-cabb089e95ae" />
 
+ᴄʜᴇᴄᴋ ᴏᴜᴛ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ᴀɴᴅ ᴀᴛᴀʙᴏᴏᴋ!!
 
+(ᴛʜɪꜱ ɪꜱ ᴍʏ ʀᴇʙʀᴀɴᴅɪɴɢ)
